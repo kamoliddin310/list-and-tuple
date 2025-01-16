@@ -1,0 +1,1 @@
+# kod haqida tuliq ma'lumot yuq ekan
